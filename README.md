@@ -1,3 +1,6 @@
+![image](https://github.com/SethuChitravel23/SethuChitravel23/assets/124245953/6b079d76-aced-4374-a03e-20b29c66a3a1)
+
+
 I am having about 10.2 years of total experience in IT, 9.8  years  in low code technologies – Pega (9 years) & Outsystems (8 months) , as a Developer, Technical Analyst, Interface Architect, Solution architect, Framework Analyst, Process Analyst, Technical Documentation Specialist and Data Model Designer, Interviewer & Trainer. 
 
 I have worked in Development, Support and Maintenance, Assessment, Migration, Enhancement, Handover & Upgrade projects. 
